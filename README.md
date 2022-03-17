@@ -1,7 +1,7 @@
 # Presentación 
 ### Miwszuk Eliana
 * Tengo 25 años
-* Recursante si, vencida? Jamás! 
+* Recursante 
 
 ### Hobbies
  * Me gusta: 
