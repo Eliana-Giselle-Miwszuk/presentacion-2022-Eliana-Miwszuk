@@ -8,7 +8,7 @@
     - ir al gimnasio.
     - Salir a andar en bici.
     - Hacerme la cantante y bailarina sensual frente al espejo.
-    - Escuchar música al estilo Rata Blanca o Pantera..
+    - Escuchar música al estilo Rata Blanca ("La leyenda del hada y el mago") o Pantera ("walk")...
     - Y dibujar
     
  Y paz para todos!
